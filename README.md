@@ -1,4 +1,4 @@
-- 👋 Hallo, I’m Akash fuck who cares everyone know me as asura.
+- 👋 Hello, I’m Akash fuck who cares everyone know me as asura.
 - 👀 I’m interested in drinking blood and get into your device without your permission.
 - 🌱 I’m currently learning newest position to fuck a girl.
 - 💞️ I’m looking to collaborate on pornhub meybe.
